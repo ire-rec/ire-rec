@@ -4,7 +4,7 @@ Aquí una junior developer ⚡️⚡️⚡️
 
 Llegué a la informática por **curiosidad** 👀: en los últimos años había creado dos miniproyectos empresariales que desarrollé con InDesign, Photoshop e Illustrator; quería darlos a conocer a través de una web, pero no sabía cómo hacer una, así que decidí aprender.
 
-Y aunque soy nueva en el sector IT, soy toda una senior en el ámbito editorial 💪. Tengo un máster en edición de libros, un grado en Periodismo e Información y estudios de SEO y creación de negocios. Esto acompañado de muchísima experiencia laboral.
+Y aunque soy nueva en el sector IT, soy toda una senior en el ámbito editorial 💪. Tengo un máster en edición de libros, un grado en Periodismo e Información y estudios de SEO y creación de negocios. ¡Y mucha experiencia laboral!
 
 🔥 La programación cambió mi rumbo: dejé a un lado mi profesión y me animé a empezar de nuevo 🔥.
 
