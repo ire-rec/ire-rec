@@ -10,7 +10,7 @@ Y aunque soy nueva en el sector IT, soy toda una senior en el ámbito editorial.
 
 
 
-### *Hello! Here is a junior developement* ⚡️⚡️⚡️
+### *Hello! Here is a junior developer* ⚡️⚡️⚡️
 
 *I  arrived to the IT sector out of **curiosity***  👀:  *in the last few years I had created two mini business projects that I developed with InDesign, Photoshop e Illustrator. I wanted make them know through a website, but i didn't know how to make one, so I decided **to learn**.* 🧠
 
