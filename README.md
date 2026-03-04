@@ -4,7 +4,7 @@ Llegué a la informática por **curiosidad** 👀: en los últimos años había 
 
 Y aunque soy nueva en el sector IT, soy toda una senior en el ámbito editorial. Tengo un máster en edición de libros, soy licenciada en Comunicación y Periodismo, he llevado cursos de SEO y creación de negocios ¡y mucha experiencia laboral en el área de la comunicación!
 
-🔥 Tengo motivación. Y enormes ganas de seguir aprendiendo 🔥.
+Tengo motivación. Y enormes ganas de aportar valor.
 
 
 
