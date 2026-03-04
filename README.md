@@ -1,4 +1,4 @@
-### ¡Hola! Aquí una junior developer ⚡️⚡️⚡️
+### ¡Hola!
 
 Llegué a la informática por **curiosidad** 👀: en los últimos años había creado dos proyectos empresariales que desarrollé con InDesign, Photoshop e Illustrator; quería darlos a conocer a través de una web, pero no sabía cómo hacer una, así que decidí **aprender** 🧠.
 
